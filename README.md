@@ -1,2 +1,4 @@
 # Web-Page-Code
-Code For The Webpage Of TheAnimatronicFox
+# Free As In Freedom
+ You Can Use It With Your Own Purpose
+# Woot
